@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DaGeBoo
+- 👀 I’m interested in drawing and code
+- 🌱 I’m currently learning Html & Phyton
+- BRUH
